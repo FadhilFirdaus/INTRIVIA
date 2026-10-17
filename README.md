@@ -10,3 +10,8 @@
 
 ## Kesan Pesan Cluster 6 Sejauh Ini 
 [Cluster nya solid!!] 
+
+
+## Harapan Kuliah 
+Bisa mengembangkan Skill disini!! 
+
